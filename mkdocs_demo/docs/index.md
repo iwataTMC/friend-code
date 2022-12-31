@@ -11,9 +11,12 @@ My trainer code is
 ---
 
 ## Fate/Grand Order Friend Code
+
 Fate Grand Order / FGO  
-My User ID is  
+My User ID is
 
 ```
 571 754 748
 ```
+
+Let's be friends!!
